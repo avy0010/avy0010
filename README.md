@@ -1,5 +1,5 @@
 - 👋 Hi, Human here
-- 👀 I’m interested in everything
+- 👀 I’m interested in anything
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on everything
 
